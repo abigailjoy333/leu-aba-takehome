@@ -25,7 +25,7 @@
 ![Screen Shot 2 Mobile](images/IMG_3844.jpg)
 
 3. 
-![Screen Shot 3 Mobile](images/IMG_3845.jpg)
+![Screen Shot 3 Mobile](images/IMG_3848.jpg)
 
 4.
 ![Screen Shot 4 Mobile](images/IMG_3846.jpg)
